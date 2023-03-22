@@ -7,11 +7,11 @@
  **Intihuatana**, é um relógio de sol gigante.
  **Terraços Agrícolos**, são as plantações como se fosse em forma de escadas
  ## Onde Comer?
- Há vários restaurantes bons mas alguns dos melhores são:
+ Há vários restaurantes bons mas alguns dos melhores são:  
  o Chullos Craft Beer & Home Made Food, o Restaurante Tupana Wasi e o Sami Restaurant.
- ## Onde Dormir?
- um dos melhor hoteis mais baratos da região é o Tierra Viva Machu Picchu Hotel.
- # Créditos:
+ ## Onde Dormir?  
+ um dos melhor hoteis mais baratos da região é o Tierra Viva Machu Picchu Hotel.  
+ # Créditos:  
  Gustavo Yuuki Santos- Página Web, Imagens e Apresentação  
  Isaque Chaves De Castro- Ajuda com as Imagens  
  Luiza Oliveira De Azevedo - Apresentação  
