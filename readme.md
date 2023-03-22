@@ -12,7 +12,7 @@
  ## Onde Dormir?
  um dos melhor hoteis mais baratos da região é o Tierra Viva Machu Picchu Hotel.
  # Créditos:
- Gustavo Yuuki Santos- Página Web, Imagens e Apresentação
- Isaque Chaves De Castro- Ajuda com as Imagens
- Luiza Oliveira De Azevedo - Apresentação
- Bernardo Henrique De Souza - Texto
+ Gustavo Yuuki Santos- Página Web, Imagens e Apresentação  
+ Isaque Chaves De Castro- Ajuda com as Imagens  
+ Luiza Oliveira De Azevedo - Apresentação  
+ Bernardo Henrique De Souza - Texto  
